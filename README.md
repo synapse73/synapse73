@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- this is a hidden acc for the one i love
+- since he only knows me as whosnothungry lol
+
