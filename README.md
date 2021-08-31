@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - this is a hidden acc for the one i love
-- since he only knows me as whosnothungry lol
+- since he only knows me as a hungry girl lol
 
