@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-🎁 I am Synapse 
-🧠 I am currently learning neural development
-🤡 Apple fan and love "折腾" all the time 
+- 🎁 I am Synapse 
+- 🧠 I am currently learning neural development
+- 🤡 Apple fan and love "折腾" all the time 
 
 
 <!--
